@@ -14,7 +14,7 @@ I am an Interior Decorator, student, and co-creator of littleblacknook.com
 
 
 ## Github Profile
-👩‍💻 I'm currently working on A LOT of homework because I'm taking 5 classes this semester    
+👩‍💻 I'm currently working on A LOT of homework because I'm taking 5 classes this semester 😮‍💨    
 
 🧠 I'm currently learning web development
 
